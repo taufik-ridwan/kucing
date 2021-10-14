@@ -1,1 +1,1 @@
-# kucing
+# Semoga bermanfaat
